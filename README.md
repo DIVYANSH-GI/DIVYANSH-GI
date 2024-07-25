@@ -1,4 +1,4 @@
-#PORTFOLIO OF DIVYANSH
+# DIVYANSH-DG.github.io
 
 i am 
 
