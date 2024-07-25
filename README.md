@@ -1,13 +1,4 @@
-# DIVYANSH-DG.github.io
 
-i am 
-
-
-
-
-
-i have also 
-THIS IS MY EXCEL CERTIFICATE 
 
 
 <!--
